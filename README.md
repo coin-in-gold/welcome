@@ -1,1 +1,1 @@
-# welcome to CIG (Corin In Gold)
+# Welcome to CIG (Corin In Gold) :heart_eyes:
